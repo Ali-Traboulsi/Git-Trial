@@ -30,3 +30,14 @@ Mae Mikhayel Street, Beirut&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Mobil
  - Creating automated Sheets using Visual Basic in Ms Excel
 
 
+ **Computer Skills:**
+ <br>
+ 
+ - Adobe InDesign
+ - Adobe Premiere Pro
+ - MS Excel
+
+<br>
+<br>
+
+
